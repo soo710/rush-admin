@@ -1,6 +1,6 @@
 ## [ **확인해주세요** ] \*\*
 
-### [파티 편성(링크)](https://docs.google.com/spreadsheets/d/1ZmqVB0v5BhWB3MoBMEtAPjRERrNWiBQsOntKVwJMpHY/edit?usp=sharing)
+### [파티 편성(링크)](https://docs.google.com/spreadsheets/d/1WP76XHC7CoetG5YQLeLMjOujqW-wYe9T4EYkTjJWOaY/edit#gid=0)
 
 ## [ **참여해주세요** ] \*\*
 
