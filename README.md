@@ -273,7 +273,7 @@
 
 ## [유물전장]
  - [러쉬 vs 토토로](https://youtu.be/jv2XQ19L07o)
- - [Era vs 천루](https://www.youtube.com/watch?v=viQNxupDTbU)
+ - [1023 Era vs 천루](https://www.youtube.com/watch?v=viQNxupDTbU)
 
 ## [킹덤디펜스 (3단계)](https://youtu.be/bJmC4LJIEsE)
 
