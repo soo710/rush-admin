@@ -306,6 +306,7 @@
 ## 컨텐츠 진행 영상
 
 ## [침공전] 
+- [0113 Era vs 의지](https://youtu.be/NS3qVOscz4Y)
 - [0901 러쉬 vs 천루](https://youtu.be/ZiOlID_-NMU)
 - [0915 러쉬 vs 폐인 - 공격1](https://www.youtube.com/watch?v=O-UzYq7_HWc)
 - [0915 러쉬 vs 폐인 - 공격2](https://www.youtube.com/watch?v=UIn-QAFkYkU)
